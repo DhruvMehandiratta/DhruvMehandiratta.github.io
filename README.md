@@ -1,1 +1,1 @@
-https://www.dhruvmehandiratta.github.io
+https://dhruvmehandiratta.github.io/
